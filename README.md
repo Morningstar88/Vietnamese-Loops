@@ -16,4 +16,10 @@ Donh ho. Quat. Ban.
 
 ## [Word order](https://www.youtube.com/watch?v=w9JJc3AamhI) 
 
-## [Beginner playlit, How to Vietnamese, Caroline](https://www.youtube.com/watch?v=ulCFyvqu_uI&list=PL8zLHMeRBcmTs9FV_kR1ipRO8jlQVDaG6)
+## [Beginner playlist, How to Vietnamese, Caroline](https://www.youtube.com/watch?v=ulCFyvqu_uI&list=PL8zLHMeRBcmTs9FV_kR1ipRO8jlQVDaG6)
+
+## Colors.
+
+## 15 verbs.
+
+https://youtu.be/yndQhjs7lIA?list=PL8zLHMeRBcmTs9FV_kR1ipRO8jlQVDaG6
