@@ -14,4 +14,4 @@ Donh ho. Quat. Ban.
 
 ## [Learning Basic Vietnamese Phrases, teacher Jellie](https://www.youtube.com/watch?v=-9UsZIADJeY)
 
-
+## [Word order](https://www.youtube.com/watch?v=w9JJc3AamhI) 
